@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ADARSH2630
-- 👀 I’m interested in Coding Lnguage 
+- 👀 I’m interested in Coding Language 
 - 🌱 I’m currently learning Web development 
 - 💞️ I’m looking to collaborate on It sector 
 - 📫 Email id:- adarshagnihotri31@gmail.com
